@@ -13,6 +13,7 @@
 
 <p align="center">dg artistㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a9995914-e075-4201-a8e9-d95d6718dc36" />
 <strong>ㅤTARO</strong>ㅤ𓆩ㅤ18</p>
+<p align="center"> 12.12.25 <3
 <p align="center <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ee7fece1-b34e-403a-b2f4-d17f6f937f65" />
 ㅤ
 <p align="center"><img width="357" height="28" alt="image" src="https://github.com/user-attachments/assets/d803da6e-bc21-42f8-b9da-28ccb603f464" />
